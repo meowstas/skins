@@ -1,9 +1,8 @@
 # Skins
-osu! skins for whenever I need to redownload
-credits to [Mecha](https://github.com/Mechaaaaa/osuskins), [Reused](https://github.com/rudj-skinhub/woal/blob/tyfh/reused.md) and [Elki!](https://osu.ppy.sh/users/8136525) majority of the skins are from their profiles
-
-If there are some skins that are yours feel free to dm me on discord Yadi#2267 if you'd like me to take it down.
-
+skins i saved to redownload 
+credits r [Hidoi](https://osu.ppy.sh/users/12324702) and [Mecha](https://osu.ppy.sh/users/13720351)
+only edits i did were changing the hitcircles 
+if anyone wants these down dm me on discord @keepyouwarm
 
 # [aristia normal](https://meowsta.s-ul.eu/Vw8pIkpM)
 ![image](https://media.discordapp.net/attachments/639225978119389184/1263690148118397009/screenshot033.jpg?ex=669b26a9&is=6699d529&hm=85eeb7d21debfd4192bc4bce4e7885cf25d8a7b0e092646486b2c16c375f893b&=&format=webp&width=1201&height=675)
