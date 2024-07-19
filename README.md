@@ -8,8 +8,8 @@ If there are some skins that are yours feel free to dm me on discord Yadi#2267 i
 # [aristia normal](https://meowsta.s-ul.eu/Vw8pIkpM)
 ![image](https://media.discordapp.net/attachments/639225978119389184/1263690148118397009/screenshot033.jpg?ex=669b26a9&is=6699d529&hm=85eeb7d21debfd4192bc4bce4e7885cf25d8a7b0e092646486b2c16c375f893b&=&format=webp&width=1201&height=675)
 
-# [2umu](https://github.com/rudj-skinhub/woal/raw/tyfh/reused/2umu.osk)
-![image](https://user-images.githubusercontent.com/130260934/231319270-f7d8c162-a3b6-4aa4-b615-4edb0059a355.png)
+# [aristia recolor](https://meowsta.s-ul.eu/PZZtoRPh)
+![image](https://media.discordapp.net/attachments/639225978119389184/1263690147350970492/screenshot035.jpg?ex=669b26a9&is=6699d529&hm=3821a6b427906e5f5a60bab770333473997752bf1981c392141fea3accea385e&=&format=webp&width=1201&height=675)
 
-# [myangelaosora Rafis](https://meowsta.s-ul.eu/Q5fUeWHT)
-![image](https://user-images.githubusercontent.com/130260934/231319789-7169d213-8158-4df5-b0e8-11f4c0e1a720.jpg)
+# [awesome hddt](https://meowsta.s-ul.eu/mvCsauJH)
+![image](https://media.discordapp.net/attachments/639225978119389184/1263690147690451005/screenshot036.jpg?ex=669b26a9&is=6699d529&hm=9fdda4eacd952bd31676fd92d042ed8b08a7239fe612d00a0905dc01606f3678&=&format=webp&width=1201&height=675)
